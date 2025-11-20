@@ -38,7 +38,3 @@ This approach will help you see:
 Most importantly, it will help you understand why **baptism is not just a Christian ritual**, but **the fulfillment of God’s ancient covenant plan** revealed across Scripture.
 
 **So, welcome to Session 1  — where we will begin with the God who was revealed in shadows in the Old Testament, and fully revealed in the face of Jesus Christ.**
-
-### Part 1 — God as Revealed by Jesus
-If we begin our journey in the Old Testament, we immediately see that God reveals Himself progressively—through shadows that point toward a greater revelation to come. 
-let us go t
