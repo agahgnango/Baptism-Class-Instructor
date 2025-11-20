@@ -1,5 +1,7 @@
 # Baptism-Class-Instructor page
 
+<img width="1536" height="1024" alt="image" src="https://github.com/user-attachments/assets/045fc683-3bd6-4b23-b1f8-bf537565d9bd" />
+
 Welcome to the Baptism Class Curriculum! A four-week discipleship path built solely on the teachings of Jesus, not tradition, not denominational culture, and not inherited doctrine.
 This curriculum is designed to help instructors guide participants into authentic new-birth faith, rooted in the Kingdom message Christ Himself preached.
 
